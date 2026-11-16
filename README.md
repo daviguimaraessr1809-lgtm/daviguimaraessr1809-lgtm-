@@ -1,1 +1,2 @@
-# daviguimaraessr1809-lgtm-
+# Davi
+Meu nome é Davi Guimarães, sou estudante do colégio Batista Mineiro de Betim. Estou finalizando meu primeiro ano de curso e espero aprender muito mais no futuro. Meus objetivos acadêmicos são: *conhecer plenamente a área a ponto de estar preparado para o mercado de trabalho, compreender se quero seguir esse caminho no meu curso superior e me formar com boas notas para apresentar um currículo interessante.*
